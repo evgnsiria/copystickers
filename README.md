@@ -5,6 +5,6 @@ copy stickers and emojis telegram for free! копируй стикеры и э�
 Воруют стикеры телеграм телеграм воровмтсо стикеров steal emoji steal emojis telegram stealing stickers stikery4 emojigo emsetbot stikeri_stikeri_bot how to copy stickers telegram bot
 
 # Копируй стикеры и эмодзи здесь:
-## [t.me/e4zybot](t.me/e4zybot)
-## [t.me/e4zybot](t.me/e4zybot)
-## [t.me/e4zybot](t.me/e4zybot)
+## [t.me/e4zybot](https://t.me/e4zybot)
+## [t.me/e4zybot](https://t.me/e4zybot)
+## [t.me/e4zybot](https://t.me/e4zybot)
